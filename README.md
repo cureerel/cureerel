@@ -12,5 +12,5 @@ y creando ideas poderosas para **AR/VR**.
 Siempre aprendiendo nuevas tecnologías y mejorando mis habilidades.  
 
 **Firma:**  
-_I do programming and I do do....._
+_I do programming and I do doo....._
 
